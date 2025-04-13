@@ -1,0 +1,1 @@
+🔴 Your files have been encrypted! Pay 1 BTC to recover them. 🔴
